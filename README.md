@@ -1,2 +1,2 @@
 # APECHE-LICENSE-
- Assalamualaikum guys guys mana new neew shero lol ha ye app
+ Assalamualaikum guys  agar guys apko licence chaiye to mujhse rabta kare guys theek ha is se apko online earning karne ko miljati ha ha guys 
